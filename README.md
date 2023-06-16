@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 💭
 
 <!--
 **sugarlxn/sugarlxn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+**一个追求自由的人**
+**喜欢旅游，偶尔写写代码和文章**
+**Once an idea comes to my mind, just take action to have a try ( •̀ ω •́ )✧**
