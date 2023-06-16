@@ -15,5 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 **一个追求自由的人**
-**喜欢旅游，偶尔写写代码和文章**
+
+**喜欢旅行到处走走，偶尔写写代码和文章<(￣︶￣)↗[GO!]**
+
 **Once an idea comes to my mind, just take action to have a try ( •̀ ω •́ )✧**
