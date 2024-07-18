@@ -16,6 +16,6 @@ Here are some ideas to get you started:
 -->
 **一个追求自由的人**
 
-**喜欢旅行到处走走，偶尔写写代码和文章༼ つ ◕_◕ ༽つ] <(￣︶￣)↗[GO!]**
+**喜欢旅行到处走走，偶尔写写代码和文章<(￣︶￣)↗[GO!]**
 
 **Once an idea comes to my mind, just take action to have a try ( •̀ ω •́ )✧**
