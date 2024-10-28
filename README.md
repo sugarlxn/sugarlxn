@@ -19,3 +19,6 @@ Here are some ideas to get you started:
 **喜欢旅行到处走走，偶尔写写代码和文章<(￣︶￣)↗[GO!]**
 
 **Once an idea comes to my mind, just take action to have a try ( •̀ ω •́ )✧**
+
+访问次数：upupup↑↑↑
+!(:lxn123)[https://count.getloli.com/@:lxn123]
