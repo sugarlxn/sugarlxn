@@ -21,4 +21,5 @@ Here are some ideas to get you started:
 **Once an idea comes to my mind, just take action to have a try ( •̀ ω •́ )✧**
 
 访问次数：upupup↑↑↑
-!(:lxn123)[https://count.getloli.com/@:lxn123]
+
+![:lxn123](https://count.getloli.com/@:lxn123)
