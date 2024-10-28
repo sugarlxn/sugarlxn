@@ -20,6 +20,6 @@ Here are some ideas to get you started:
 
 **Once an idea comes to my mind, just take action to have a try ( •̀ ω •́ )✧**
 
-[![:lxn123](https://count.getloli.com/@:lxn123?theme=booru-the-collection)](https://github.com/journey-ad/Moe-Counter)
+[![:lxn123](https://count.getloli.com/@:lxn123?theme=booru-r6gdrawfriends)](https://github.com/journey-ad/Moe-Counter)
 
 > 访问次数：upupup↑↑↑
